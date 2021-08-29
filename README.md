@@ -5,6 +5,6 @@
 🔍 You can find me everywhere using @jjhnrq; <br>
 
 <br>
-⛓ jjhnrq.carrd.co
+⛓ Visit my website (portuguese only): jjhnrq.carrd.co <br>
 Peace. 
 
