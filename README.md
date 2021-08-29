@@ -4,8 +4,7 @@
 👨‍💻 Currently studying: Python and JavaScript; <br>
 🔍 You can find me everywhere using @jjhnrq; <br>
 
-<br>
 ⛓ Visit my website (portuguese only): jjhnrq.carrd.co <br>
-
+<br>
 Peace. 
 
