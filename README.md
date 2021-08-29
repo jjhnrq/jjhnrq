@@ -6,5 +6,6 @@
 
 <br>
 ⛓ Visit my website (portuguese only): jjhnrq.carrd.co <br>
+
 Peace. 
 
